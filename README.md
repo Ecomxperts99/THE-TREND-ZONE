@@ -1,1 +1,0 @@
-# THE-TREND-ZONE
